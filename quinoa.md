@@ -1,5 +1,7 @@
 # QUINOA
 
+1 serving
+
 ***
 
 ## INGREDIENTS

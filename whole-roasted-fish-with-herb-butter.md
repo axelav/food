@@ -1,8 +1,8 @@
 # WHOLE ROASTED FISH WITH HERB BUTTER
 
-***
+2 servings
 
-serves 2
+***
 
 ## INGREDIENTS
 

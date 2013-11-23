@@ -1,5 +1,7 @@
 # POTATO KALE SOUP
 
+4-6 servings
+
 ***
 
 ## INGREDIENTS
