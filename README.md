@@ -1,4 +1,4 @@
-recipes
+# RECIPES
 =======
 
-recipes I've cooked &amp; enjoyed
+just a repo of recipes I've cooked &amp; enjoyed
