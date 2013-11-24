@@ -7,7 +7,7 @@
 ## INGREDIENTS
 
 - 1/2 cup of quinoa
-- 1 1/2 cups of organic broccoli, peas, carrots, whatever
+- 2/3 - 1 cup of organic broccoli, peas, carrots, whatever (less tends to make the quinoa fluffier)
 - 1 cube veggie/chicken bullion
 - liquid aminos
 - extra virgin olive oil
