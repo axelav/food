@@ -1,8 +1,8 @@
 # QUINOA
 
-1 serving
+## YIELD
 
-***
+1 serving
 
 ## INGREDIENTS
 
