@@ -1,10 +1,10 @@
-# POTATO KALE SOUP
+# potato kale soup
 
-## YIELD
+## yield
 
 4-6 servings
 
-## INGREDIENTS
+## ingredients
 
 - 1/4 cup olive oil
 - 2 onions
@@ -16,7 +16,7 @@
 - 8 cups chicken stock
 - 1 big bunch of kale
 
-## PREPARATION
+## preparation
 
 1. heat 1/4 cup of olive oil in a big pan
 2. throw 1/2 lb of garlicy sausage in there, brown it, remove & keep ready to throw back in

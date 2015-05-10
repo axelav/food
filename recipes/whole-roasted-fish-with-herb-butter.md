@@ -1,10 +1,10 @@
-# WHOLE ROASTED FISH WITH HERB BUTTER
+# whole roasted fish with herb butter
 
-## YIELD
+## yield
 
 2 servings
 
-## INGREDIENTS
+## ingredients
 
 - 1 1/2 lb whole trout, branzino, or other fish
 - 1/4 lb unsalted butter, softened
@@ -14,16 +14,16 @@
 - 1 cup dry white wine
 - sea salt & pepper
 
-## PREPARATION
+## preparation
 
-### HERB BUTTER
+### herb butter
 
 1. finely chop herbs & garlic & add them to the butter.
 2. add 1 tbsp of lemon juice & a pinch of salt & pepper. beat until well-mixed.
 3. scoop the butter onto a sheet of plastic wrap & roll it into a tube.
 4. refridgerate till set, about 40 minutes.
 
-### FISH
+### fish
 
 1. pre-heat over to 450. rinse fish & pat it dry.
 2. salt the inside & outside of the fish well & place it in a shallow baking dish.

@@ -1,3 +1,3 @@
-# RECIPES
+# food
 
-just a repo of recipes I've cooked &amp; enjoyed
+foods & recipes i have enjoyed
